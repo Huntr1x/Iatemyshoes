@@ -11,7 +11,7 @@
 ![a0a81527c2e611848296d438e5e25328](https://github.com/user-attachments/assets/c2cd96e4-0854-4706-b651-dcda3085dc41)![9c7d1803cc23e36edc58815dde566b4a](https://github.com/user-attachments/assets/d6d90d1a-ad8a-41a5-8941-79dded377780)
 ![9f2167dbf67523649f41139a7b8f240c5f7d511ar1-1200-1200v2_00](https://github.com/user-attachments/assets/197fcf6f-297f-4b32-80db-3a4a2d5a680f)
 
-
+ignore the elizabeth shipper pic bcz idek.
 
 
 
